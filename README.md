@@ -1,2 +1,2 @@
 # -
-Մոծակների մասին
+Մոծակների մասին apdate Mocakneri masin
